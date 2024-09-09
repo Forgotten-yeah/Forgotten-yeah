@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Forgotten-yeah
+- 👀 I’m interested in ПОХУЙ ГОЙДА
+- 🌱 I’m currently learning ПОХУЙ ГОЙДА
+- 💞️ I’m looking to collaborate on ПОХУЙ ГОЙДА
+- 📫 How to reach me ПОХУЙ ГОЦДА
+- 😄 Pronouns: ПОХУЙ ГОЙДА
+- ⚡ Fun fact: ПОХУЙ ГОЙДА
